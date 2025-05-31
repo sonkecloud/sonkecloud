@@ -11,4 +11,3 @@ https://500px.com/p/sonkecloud
 https://www.tumblr.com/sonkecloud
 https://www.twitch.tv/sonkecloud/about
 https://www.pinterest.com/sonkecloud/
-![image](https://github.com/user-attachments/assets/955f4983-651b-4990-ac81-54653b560f49)
